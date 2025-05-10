@@ -1,5 +1,18 @@
+![](https://i.postimg.cc/mZmNn8jC/ebc2f3f111b6bd7c3207dcf6c7dcdcbf5a90367b.png)
+
 ㅤㅤㅤㅤ![](https://static.wikia.nocookie.net/marvel-rivals/images/5/50/Loki_MVP_-_Crooked_Candidate_Full.gif/revision/latest?cb=20250314140507)
 
 ![](https://i.postimg.cc/zXgTv0zm/42c9df5cb68e91db3b9a5f0de10e4d34587bfd37.png)
 
-<code style="color : Green">text</code>ㅤㅤ18ㅤㅤ![](https://cdn.discordapp.com/emojis/1113883032567422976.webp?size=22&quality=lossless)ㅤㅤ![](https://i.ibb.co/b2GycB8/ezgif-3-367ad808cf.png)ㅤㅤ![](https://i.ibb.co/6NSWkb5/ezgif-3-058e7ef1ea.png)
+ㅤㅤㅤㅤ $${\color{green}LokiㅤノㅤSyrius}$$ㅤㅤ**18**ㅤㅤ![](https://cdn.discordapp.com/emojis/1113883032567422976.webp?size=22&quality=lossless)ㅤㅤ![](https://i.ibb.co/b2GycB8/ezgif-3-367ad808cf.png)ㅤㅤ![](https://i.ibb.co/6NSWkb5/ezgif-3-058e7ef1ea.png)ㅤㅤ![](https://i.postimg.cc/dVLQJtG4/pixel-flag-brazil-by-sw-eetlycanada-dceqoeo-fullview.jpg)ㅤㅤ![](https://i.postimg.cc/rp7KBRb1/d5ui3q0-a4f2243a-6bf2-4e4e-84ba-6c521af5c02d.gif)
+
+ㅤㅤㅤㅤ ![](https://i.postimg.cc/DZMQSz85/Loki-Hero-Portrait.png)ㅤㅤ $${\color{green}Information}$$ㅤㅤ *Do not copy any skin of mine*
+
+ㅤㅤㅤㅤ ![](https://i.postimg.cc/jScMstQ3/Iron-Man-Hero-Portrait.png)ㅤㅤ $${\color{green}DNI}$$ㅤㅤ *[If you fit the basic criteria](https://dni-criteria.carrd.co/), endogenic systems*
+
+ㅤㅤㅤㅤ ![](https://i.postimg.cc/CMNyZTND/Loki-Full-Default-Costume.png)ㅤㅤㅤ $${\color{green}Extraㅤinformationㅤbelow}$$ㅤㅤ ![](https://i.postimg.cc/26TV994t/d67w325-4f484675-873e-4c03-b9d3-7fdd3ea97a70-gif-token-ey-J0e-XAi-Oi-JKV1-Qi-LCJhb-Gci-Oi-JIUz-I1-Ni-J9-ey-Jzd-WIi.gif)
+
+ㅤㅤㅤㅤ ![](https://i.postimg.cc/RZQGdfPD/Iron-Man-Full-Default-Costume.png)ㅤㅤㅤ *Iron Man enthusiast, Frostiron enjoyer, comics reader*
+ㅤㅤㅤㅤ 
+
+![](https://i.postimg.cc/X7QjdyVV/5c8965a3bdd531d5cf8c9be9d904828b068c2d96.png)
