@@ -4,7 +4,7 @@
 
 ![](https://i.postimg.cc/zXgTv0zm/42c9df5cb68e91db3b9a5f0de10e4d34587bfd37.png)
 
-ㅤㅤㅤㅤ $${\color{green}LokiㅤノㅤSyrius}$$ㅤㅤ**18**ㅤㅤ![](https://cdn.discordapp.com/emojis/1113883032567422976.webp?size=22&quality=lossless)ㅤㅤ![](https://i.ibb.co/b2GycB8/ezgif-3-367ad808cf.png)ㅤㅤ![](https://i.postimg.cc/N0M5KqZj/ezgif-3-058e7ef1ea.png)ㅤㅤ![](https://i.postimg.cc/dVLQJtG4/pixel-flag-brazil-by-sw-eetlycanada-dceqoeo-fullview.jpg)ㅤㅤ![](https://i.postimg.cc/rp7KBRb1/d5ui3q0-a4f2243a-6bf2-4e4e-84ba-6c521af5c02d.gif)
+ㅤㅤㅤㅤ $${\color{green}LokiㅤノㅤSyrius}$$ㅤㅤ**18**ㅤㅤ![](https://i.ibb.co/b2GycB8/ezgif-3-367ad808cf.png)ㅤㅤ![](https://i.postimg.cc/N0M5KqZj/ezgif-3-058e7ef1ea.png)ㅤㅤ![](https://cdn.discordapp.com/emojis/1113883032567422976.webp?size=22&quality=lossless)ㅤㅤ![](https://i.postimg.cc/dVLQJtG4/pixel-flag-brazil-by-sw-eetlycanada-dceqoeo-fullview.jpg)ㅤㅤ![](https://i.postimg.cc/rp7KBRb1/d5ui3q0-a4f2243a-6bf2-4e4e-84ba-6c521af5c02d.gif)
 
 ㅤㅤㅤㅤ ![](https://i.postimg.cc/DZMQSz85/Loki-Hero-Portrait.png)ㅤㅤ $${\color{green}Information}$$ㅤㅤ *Do not copy any skin of mine*
 
